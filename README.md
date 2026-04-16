@@ -1,3 +1,5 @@
+
+# Hi, I'm Yohana Oicata 👋
 **Marketing Data Analyst** | Business Administrator | Cúcuta, Colombia 🇨🇴
 
 I bridge the gap between marketing strategy and data — turning raw metrics into business decisions. With a background in Business Administration and ongoing studies in Software Analysis & Development at SENA, I work at the intersection of analytics, e-commerce, and digital marketing.
